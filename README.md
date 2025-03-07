@@ -1,5 +1,5 @@
+![image](https://github.com/user-attachments/assets/a4db340f-bb5d-4a50-9d53-c990929e1d1f)
 
-![image](https://github.com/user-attachments/assets/f73ff3e1-700c-41db-aa0f-ccc776c9d4c7)
 
 𝐅𝐨𝐫 𝐭𝐡𝐞 𝐁𝐫𝐚𝐰𝐥 𝐒𝐭𝐚𝐫𝐬 𝐀𝐫𝐞𝐚 𝐢𝐧 𝐏𝐨𝐧𝐲𝐓𝐨𝐰𝐧;
 
